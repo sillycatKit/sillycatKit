@@ -1,2 +1,2 @@
-![sckit logo thingy :3](Untitled63_20230911205550.png "logo")
+![sckit logo thingy :3](Untitled75_20230924192158.png "logo")
 ### Erm... howdy?
